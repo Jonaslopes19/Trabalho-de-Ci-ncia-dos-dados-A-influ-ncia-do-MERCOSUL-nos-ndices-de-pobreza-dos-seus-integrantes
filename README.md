@@ -1,0 +1,1 @@
+# Trabalho-de-Ci-ncia-dos-dados-A-influ-ncia-do-MERCOSUL-nos-ndices-de-pobreza-dos-seus-integrantes
